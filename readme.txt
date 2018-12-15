@@ -1,0 +1,1 @@
+—сылка на проект: https://vk.com/yandexlyceum_bot
